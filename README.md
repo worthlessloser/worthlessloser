@@ -5,7 +5,7 @@
 - 📫 How to reach me discord or whatsup
 
 I hate almost everything
-worthlessloser/worthlessloser
+I have some friends
 go by they/them
 I am trying to beocme a doctor because at this point I want to help people now
 and I like to work alone.
